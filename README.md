@@ -1,2 +1,2 @@
-# Emmanuel-Dur-n-L-pez
+# Emmanuel
 Primer repositorio, pagina de inicio 
